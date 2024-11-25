@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning your weaknesses
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me: Look behind you
-- 😄 Pronouns:
+- 😄 Pronouns: he/they :3
 - ⚡ Fun fact: I am currently approaching your location. Start running.
 
 <!---
