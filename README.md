@@ -1,10 +1,8 @@
 - 👋 Hi, I’m @Shmugol
 - 👀 I’m interested in you
-- 🌱 I’m currently learning your weaknesses
-- 💞️ I’m looking to collaborate on idk sth ig
-- 📫 How to reach me: Look behind you
+- 📫 How to reach me: dibscordb
 - 😄 Pronouns: he/they
-- ⚡ Fun fact: I am currently approaching your location
+- ⚡ Kindness internet theory
 
 <!---
 Shmugol/Shmugol is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
